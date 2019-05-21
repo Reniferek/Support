@@ -2,5 +2,5 @@
 
 **Contact information:**
 
-E-mail: tantum2@wp.pl
+E-mail: tantum2@wp.pl<br>
 Facebook: renifereksunic
